@@ -1,1 +1,0 @@
-# AlifPharisy.github.io
